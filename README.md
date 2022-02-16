@@ -2,6 +2,4 @@
 
 I like web3 and stuff
 
-If you want to reach me out put just DM me on Twitter.
-
-All pinned repos down below are my own
+If you want to reach me out put just DM me on Twitter
